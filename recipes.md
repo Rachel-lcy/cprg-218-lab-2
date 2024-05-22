@@ -114,3 +114,29 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+## Chinese cuisine
+### fish flavored shredded pork
+
+Ingredients:
+- 250 g pork tenderloin
+- 5 g dried black "wood ear" fungus
+- 100 g bamboo shoots
+- 1 medium sized carrot
+- 3 cloves garlic
+- 3 scallions
+- 3 tbsp vegetable oil
+- 1 thumb-sized piece of ginger
+- 1 tbsp Chinese cooking sherry/wine
+- 1 tbsp cornstarch
+- 1/4 tsp salt
+
+Instructions:
+1. Soak the black fungus in a large bowl of warm water for 1 hour to rehydrate. Remove the hard stems, rince well, and drain. Cut into thin slices, set aside.
+2. Cut pork into 3 cm long, thin slices. Combine pork slices, Chinese cooking wine, salt and 1 tbsp cornstarch in a medium-sized bowl, mix well. Add 1 tbsp oil, toss well, set aside.
+3. Cut carrot and bamboo shoots into thin, almost shredded, slices about 3 cm long. Set aside. Mince garlic and ginger, set aside separate from vegetables.
+4. Mix sauce ingredients in a medium-sized bowl and set aside.
+5. Heat 1 tbsp oil in a wok on medium to high heat. Add marinaded pork mixture into the wok, frying 30 seconds, and then gently separate the pork slices with a spatula. Stir fry for about 1 minute more. Remove from wok.
+6. Add 1 tbsp oil into the same wok. When oil is hot, stir fry minced garlic and ginger for 10 seconds until fragrant. Add carrot and bamboo shoots, stir and cook for about 1 minute.
+7. Add pork and black fungus to the wok, mix well, then add sauce mixture, frying for 1 minute. Make sure all the ingredients are evenly coated with sauce.
+8. Place on a serving plate, and garnish with finely-chopped scallions. Serve immediately.
