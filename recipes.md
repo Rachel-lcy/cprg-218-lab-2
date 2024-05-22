@@ -59,6 +59,7 @@ Ingredients:
 - 2 cloves garlic, minced
 - Salt and pepper to taste
 - 1 jar (24 oz) spaghetti sauce
+- 2 spoon ketchup
 
 Instructions:
 1. Cook spaghetti according to package instructions.
@@ -80,6 +81,7 @@ Ingredients:
 - Lettuce
 - Tomato
 - Mayonnaise
+- soy sauce 
 
 Instructions:
 1. Preheat grill to medium-high heat.
@@ -93,15 +95,15 @@ Instructions:
 ### Chocolate Chip Cookies
 
 Ingredients:
-- 2 1/4 cups all-purpose flour
-- 1 tsp baking soda
-- 1 tsp salt
-- 1 cup unsalted butter, softened
-- 3/4 cup white sugar
-- 3/4 cup brown sugar
-- 2 eggs
-- 2 tsp vanilla extract
-- 2 cups semisweet chocolate chips
+- 2 1/2 cups all-purpose flour
+- 2 tsp baking soda
+- 2 tsp salt
+- 2 cup unsalted butter, softened
+- 1 cup white sugar
+- 1 cup brown sugar
+- 4 eggs
+- 4 tsp vanilla extract
+- 4 cups semisweet chocolate chips
 
 Instructions:
 1. Preheat oven to 375°F (190°C).
